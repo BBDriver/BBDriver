@@ -1,3 +1,3 @@
 <div style="text-align : center;">
-    <img src="https://www.sankakucomplex.com/wp-content/uploads/2022/04/Onipan-Episode1-Omake-6.gif">
+    <img src="https://livedoor.blogimg.jp/moyugenn/imgs/f/0/f0f34e2c.gif">
 </div>
